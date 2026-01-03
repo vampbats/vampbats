@@ -8,7 +8,7 @@
   <br>
    <br>
    
-𝐁𝐫𝐚𝐦 or Ambrose <br>
+🤍 𝐁𝐫𝐚𝐦 or Ambrose <br>
 adult, minors IWC! <br>
 𝐡𝐞/𝐡𝐢𝐦 or any pronouns <br>
 gay & masc nonbinary <br>
