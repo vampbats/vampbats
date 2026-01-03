@@ -1,8 +1,4 @@
 
-
- ‎ ‎ ‎ ‎
-‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ <br>
-
 <img align="left" src="https://files.catbox.moe/cj4gh0.png" />
  <br>
   <br>
