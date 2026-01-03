@@ -14,7 +14,7 @@ gay & masc nonbinary <br>
  𝐜+𝐡 𝐢𝐬 𝐯𝐞𝐫𝐲 𝐯𝐞𝐫𝐲 𝐦𝐮𝐜𝐡 𝐞𝐧𝐜𝐨𝐮𝐫𝐚𝐠𝐞𝐝 at all times, but please do not approach with the intent of shipping. I'm not really keen on discussing ships at all in the first place. no particular 𝐃𝐍𝐈 except basic criteria, heavy shippers and parasocial fans, though I will block or avoid conversation pretty freely if I'm uncomfortable.
  <br>
  
-𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘪𝘯 𝘵𝘩𝘦 𝘨𝘢𝘤𝘩𝘢 𝘢𝘳𝘦𝘢 𝘣𝘺 𝘮𝘺𝘴𝘦𝘭𝘧 𝘰𝘳 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘥𝘦𝘢𝘳 𝘰𝘰𝘮𝘧𝘴.
+𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘪𝘯 𝘵𝘩𝘦 𝘨𝘢𝘤𝘩𝘢𝘨𝘢𝘮𝘦𝘴 𝘢𝘳𝘦𝘢 𝘣𝘺 𝘮𝘺𝘴𝘦𝘭𝘧 𝘰𝘳 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘥𝘦𝘢𝘳 𝘰𝘰𝘮𝘧𝘴.
  <br>
  <br>
  <br>
