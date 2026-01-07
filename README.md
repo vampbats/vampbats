@@ -22,9 +22,14 @@ cuddle/touch/cover comfort. 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘪𝘵𝘵𝘪�
  <br>
 
 <p align="center">
-<img src="https://wilardo.crd.co/assets/images/gallery20/e5c72868.gif?v=4619c116" /> < Alban, Zeal + the entirety of BTB. 3  <img src="https://wilardo.crd.co/assets/images/gallery20/301009c2.gif?v=4619c116" />
+<img src="https://wilardo.crd.co/assets/images/gallery20/e5c72868.gif?v=4619c116" /> send me gimmicks mwah ty  <img src="https://wilardo.crd.co/assets/images/gallery20/301009c2.gif?v=4619c116" />
 </p>
 
 <p align="center">
 <img src="https://files.catbox.moe/0cul4m.png" />
 </p>
+
+<details>
+<summary> ➤ Oshi list:</summary>
+WIP!!
+</details>
