@@ -30,6 +30,16 @@ cuddle/touch/cover comfort. 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘪𝘵𝘵𝘪�
 </p>
 
 <details>
-<summary> ➤ Oshi list:</summary>
-WIP!!
+<summary>Oshi list:</summary>
+  <br>
+➤ Zeal Ginjoka 👑<br>
+ <br>
+➤ Kaelix Debonair<br>
+➤ Alban Knox<br>
+➤ Doppio Dropscythe<br>
+ <br>
+Not classified as oshi, but I still love them very much:<br>
+ <br>
+➤ Freodore<br>
+➤ Seible
 </details>
